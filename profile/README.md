@@ -8,7 +8,7 @@ The Monkey captivated audiences with its heart-wrenching love story and unforget
 
 ### [➤ ►🌍📺📱👉   The Monkey (2025) F𝚞ll Mo𝚟ie Downl𝚘ad](https://rb.gy/gxe1jo)
 
-[![watch_full_movie](#GAMBAR#)
+[![watch_full_movie](https://media.themoviedb.org/t/p/w533_and_h300_bestv2/6dC7ULfiutxwEAs7LjWHL2Tc7Zv.jpg)
 
 ### **Official Announcement and Production Updates**
 
